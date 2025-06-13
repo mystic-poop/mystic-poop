@@ -1,1 +1,7 @@
-![So fucking chill](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExejE0dnB6eThqN2N0bWN6ZXR3N2h4ejl3N2VxMXBnd2tlbmRtcW40diZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Tg9jENf7x11tdJnyMQ/giphy.gif)
+# You can look my repos and you can clearly understant why newbies shouldnt code
+# Why you should follow me
+## +bcz im fork
+## +bcz im not indin (big plus)
+## +you not follow me me sad 
+## +im not trying to be indian scammer (huge plus
+![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExcG16bmh1c252cmswaGluMjg0ZW42NXMxeHBicHhoZDNtbGwyNWI4ZCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/VbnUQpnihPSIgIXuZv/giphy.gif)
